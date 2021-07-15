@@ -2,7 +2,7 @@
 
 I am an autonomous rover, my mechanical body is designed according to NASA’s standards.
 
-My main objective is to do rescue operations, discover dangerous areas, and a lot more!
+My main objectives are to do rescue operations, discover dangerous areas, and a lot more!
 
 ---
 Some of my videos:
