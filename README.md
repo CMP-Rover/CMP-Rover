@@ -8,3 +8,7 @@ My main objectives are to do rescue operations, discover dangerous areas, and a 
 Some of my videos:
 1. https://drive.google.com/file/d/1_2vY5mpbSkfSax8JPcR11N66aZeaIF92/view
 2. https://drive.google.com/file/d/1k2w_OZLcA2brSdettXkSTQvQLXGtJIx3/view?usp=sharing
+
+---
+Teams Description:
+https://www.youtube.com/channel/UC8LjTOiv0VsRGknhslmeZFA/playlists
